@@ -12,5 +12,5 @@ Here are some ideas to get you started:
 - 💬 Ask me about airplanes
 - 📫 How to reach me: diringer.z@northeastern.edu
 - 😄 Pronouns: He/him
-- ⚡ Fun fact: I like the NY Giants and Jets
+- ⚡ Fun fact: I like the NY Giants and Jets. I also play the clarinet
 -->
